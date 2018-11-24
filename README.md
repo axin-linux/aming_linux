@@ -1,1 +1,2 @@
 # aming_linux
+rgrgrgrgerg
